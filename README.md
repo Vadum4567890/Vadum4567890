@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **looking for a help**
 
-- 💬 Ask me about **React, .NET, Hobbies, (Gay porn 20TB, Feet pics, Boobies, My nipple cream, by big ass, feet oil)**
+- 💬 Ask me about **React, .NET, Hobbies, (Gaymerspoorn 20TB, Feestables pics, Boobiiiies, by fat asshoting)**
 
 - 📫 How to reach me **solpo789@gmail.com**
 
