@@ -13,17 +13,11 @@
 
 - 🤝 I’m looking for help with **looking for a help**
 
-- 👨‍💻 All of my projects are available at [https://www.feetfinder.com/](https://www.feetfinder.com/)
-
-- 📝 I regularly write articles on [https://bongacams.com](https://bongacams.com)
-
 - 💬 Ask me about **React, .NET, Hobbies, (Gay porn 20TB, Feet pics, Boobies, My nipple cream, by big ass, feet oil)**
 
 - 📫 How to reach me **solpo789@gmail.com**
 
 - 📄 Know about my experiences [I love children](I love children)
-
-- ⚡ Fun fact **I have 1 body in my basement**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
