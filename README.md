@@ -7,17 +7,16 @@
 
 - 🔭 I’m currently working on **Web-Shop like Rozetka**
 
-- 🌱 I’m currently learning **React, Rust, Ubuntu, NodeJS, Linux, Assembly X86, X64, Aarch 64, RISC-V, Z-80, TMS-320, Binary, Elecrical curcuits**
+- 🌱 I’m currently learning **React, NodeJS**
 
 - 👯 I’m looking to collaborate on [Ubuntu](https://www.microsoft.com/software-download/windows11)
 
 - 🤝 I’m looking for help with **looking for a help**
 
-- 💬 Ask me about **React, .NET, Hobbies, (Gaymerspoorn 20TB, Feestables pics, Boobiiiies, by fat asshoting)**
+- 💬 Ask me about **React, .NET, SQL**
 
 - 📫 How to reach me **solpo789@gmail.com**
 
-- 📄 Know about my experiences [I love children](I love children)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
