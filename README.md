@@ -7,10 +7,7 @@
 
 - 🔭 I’m currently working on **Web-Shop like Rozetka**
 
-- 🌱 I’m currently learning **React, NodeJS**
-
-- 👯 I’m looking to collaborate on [Ubuntu](https://www.microsoft.com/software-download/windows11)
-
+- 🌱 I’m currently learning **React, **Docker
 - 🤝 I’m looking for help with **looking for a help**
 
 - 💬 Ask me about **React, .NET, SQL**
